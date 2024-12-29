@@ -1,1 +1,0 @@
-# Smart-AI-Assistant-for-specially-abled
